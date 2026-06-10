@@ -19,8 +19,8 @@ I'm wanna be a game developer and I'm currently interest on developing an applic
 
 make project for fun 😎 :> and love <3🥰
 
-❌no ai slop 
-✅ only human slop 😥😊
+❌no ai slop.
+✅ only human slop 😥😊.
 
 - Art style 🎨<sup>💕</sup> :  pixel-art👾 & ascii-art💬
 - Obsessed on game, website and app development
