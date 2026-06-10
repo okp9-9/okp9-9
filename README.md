@@ -14,13 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-# profile
+<!-- # profile -->
 I'm wanna be a game developer and I'm currently interest on developing an application.
 
 make project for fun 😎 :> and love <3🥰
 
 ❌no ai slop.
 ✅ only human slop 😥😊.
+
+
 
 - Art style 🎨<sup>💕</sup> :  pixel-art👾 & ascii-art💬
 - Obsessed on game, website and app development
