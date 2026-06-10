@@ -19,8 +19,8 @@ I'm wanna be a game developer and I'm currently interest on developing an applic
 
 make project for fun 😎 :> and love <3🥰
 
-❌no ai slop.
-✅ only human slop 😥😊.
+❌no ai slop. <br />
+✅ only human slop 😥😊. <br />
 
 
 
@@ -29,5 +29,5 @@ make project for fun 😎 :> and love <3🥰
 - Want to improve skill and explorer new experience
 
 
-who want to improve yourself keep fighting and go along with me!
+who want to improve yourself keep fighting and go along with me! <br />
 thankyou for visited my profile!🙏🫂
