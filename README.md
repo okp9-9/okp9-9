@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi Friends! 🦕👋
 
 <!--
 **okp9-9/okp9-9** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,18 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# profile
+I'm wanna be a game developer and I'm currently interest on developing an application.
+
+make project for fun 😎 :> and love <3🥰
+
+❌no ai slop 
+✅ only human slop 😥😊
+
+- Art style 🎨<sup>💕</sup> :  pixel-art👾 & ascii-art💬
+- Obsessed on game, website and app development
+- Want to improve skill and explorer new experience
+
+
+who want to improve yourself keep fighting and go along with me!
+thankyou for visited my profile!🙏🫂
